@@ -4,7 +4,8 @@
 
 Programming school attendee
 
-I love compter and cars (and men) 
+I love compter and cars (and men)
+
 ![](https://github.com/EpicGamerVlad42069/EpicGamerVlad42069/blob/main/3dgifmaker70713.gif)
 
 ___
