@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+![](https://github.com/EpicGamerVlad42069/EpicGamerVlad42069/cat-cat-e.gif)
+
 <!--
 **EpicGamerVlad42069/EpicGamerVlad42069** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
