@@ -2,7 +2,7 @@
 
 ![](https://github.com/EpicGamerVlad42069/EpicGamerVlad42069/blob/main/ILoveMEN1.gif) ![](https://github.com/EpicGamerVlad42069/EpicGamerVlad42069/blob/main/cat-cat-e.gif)
 
-![Visitor Count](https : //profile-counter.glitch.me/EpicGamerVlad42069/count.svg)
+![Visitor Count](https://profile-counter.glitch.me/EpicGamerVlad42069/count.svg)
 
 <!--
 **EpicGamerVlad42069/EpicGamerVlad42069** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
