@@ -3,7 +3,7 @@
 ![](https://github.com/EpicGamerVlad42069/EpicGamerVlad42069/blob/main/cooltext439649685077120.gif) ![](https://github.com/EpicGamerVlad42069/EpicGamerVlad42069/blob/main/cat-cat-e.gif)
 ___
 
-Programming school attendee (almost)
+Programming school attendee
 
 I love compter and cars (and men)
 
